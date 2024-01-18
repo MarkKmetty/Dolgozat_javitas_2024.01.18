@@ -1,0 +1,1 @@
+# Dolgozat_javitas_2024.01.18
